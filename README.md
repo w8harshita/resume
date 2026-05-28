@@ -1,2 +1,2 @@
 # Harshita Kumari — Resume
-📄 [Download Resume PDF](./Harshita_Kumari_Resume.pdf)
+📄 [Download Resume PDF](./C:\Users\BIT\Downloads\updated.pdf)
